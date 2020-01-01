@@ -1,2 +1,2 @@
 # Personal-Website
-#thanks for checking out my personal website! 
+Thanks for checking out my personal website! 
